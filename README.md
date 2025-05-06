@@ -34,7 +34,5 @@ Email: malikashhar73@gmail.com
 
 LinkedIn: https://www.linkedin.com/in/malik-ashhar-ali/
 
-GitHub: https://github.com/MalikAshharAli
-
 Thanks for checking out my portfolio 🙌
 
