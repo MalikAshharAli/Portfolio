@@ -36,5 +36,5 @@ LinkedIn: Malik Ashhar Ali
 
 GitHub: @Malik Ashhar Ali
 
-
+Thanks for checking out my portfolio 🙌
 
