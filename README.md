@@ -32,9 +32,9 @@ For collaboration or networking, feel free to connect:
 
 Email: malikashhar73@gmail.com
 
-LinkedIn: Malik Ashhar Ali
+LinkedIn: (https://www.linkedin.com/in/malik-ashhar-ali/)
 
-GitHub: @Malik Ashhar Ali
+GitHub: @(https://github.com/MalikAshharAli)
 
 Thanks for checking out my portfolio 🙌
 
